@@ -1,6 +1,6 @@
-- 👋Hola Soy El que se la co me Legendary
-- 👀 Solo se hacer datapacks de minecraft
-- 🌱 Soy inutil y por eso no aprendo porque no se java pero se crear Datapacks
+- 👋Hola Soy El que se la come Legendary
+- 👍 Solo se hacer datapacks de minecraft
+- 🧠 Soy inutil y por eso no aprendo porque no se java pero se crear Datapacks
 - 🎮FifaGod Y MinecraftGoat.
 - 👾Discord: HolaMeLlamo10#8023
 <!---
